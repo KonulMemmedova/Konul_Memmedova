@@ -1,0 +1,1 @@
+# Konul_Memmedova
